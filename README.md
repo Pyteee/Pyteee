@@ -2,4 +2,4 @@
 - 👀 I’m interested in: coding in general, it's always interested me and now I'm trying to get into it
 - 🌱 I’m currently learning: Python :)
 - 💞️ I’m looking to collaborate on: I don't know yet, I'm new to this all lol
-- 📫 How to reach me: Pyte#9624 on Discord!
+- 📫 How to reach me: .pyte. on Discord!
